@@ -16,4 +16,4 @@ Resources, materials and all sort of "good stuff" I found online or thru other m
 *which is better: to be born good or overcome your evil nature through great effort?*
 
 # !
-*just focus, you are better than them*
+*how you do anything is how you do everything*
