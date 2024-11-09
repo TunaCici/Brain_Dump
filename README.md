@@ -17,3 +17,5 @@ Resources, materials and all sort of "good stuff" I found online or thru other m
 
 # !
 *how you do anything is how you do everything*
+
+*everything is permitted, nothing is true*
