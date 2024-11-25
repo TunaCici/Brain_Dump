@@ -23,3 +23,5 @@ Resources, materials and all sort of "good stuff" I found online or thru other m
 *for the loser now will be later to win*
 
 *those who dare to do the impossible are the ones to do so*
+
+*it is darkest before the dawn*
