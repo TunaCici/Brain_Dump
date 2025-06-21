@@ -15,6 +15,8 @@ Resources, materials and all sort of "good stuff" I found online or thru other m
 
 *which is better: to be born good or overcome your evil nature through great effort?*
 
+*when was the last time a dream meant everything to you?*
+
 # !
 *how you do anything is how you do everything*
 
