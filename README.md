@@ -27,3 +27,5 @@ Resources, materials and all sort of "good stuff" I found online or thru other m
 *those who dare to do the impossible are the ones to do so*
 
 *it is darkest before the dawn*
+
+*nobody warned me about the last and the hardest phase in life: the reality*
